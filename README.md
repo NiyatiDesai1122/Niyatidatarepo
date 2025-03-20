@@ -6,5 +6,4 @@
 
 📫 How to reach me: You can reach me via email at niyatidesai1122@gmail.com or connect with me on LinkedIn at www.linkedin.com/in/niyatidesai01 .
 
-⚡ Fun fact: I enjoy discovering insights from data and turning them into actionable recommendations to drive business success.
 
